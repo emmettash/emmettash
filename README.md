@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @emmettash
-- 👀 I’m interested in ...blockchain
+- 👀 I’m interested in .bounties hackathons..blockchain
 - 🌱 I’m currently learning blockchain...
 - 💞️ I’m looking to collaborate on ...still learning
 - 📫 How to reach me twitter @cointrustmoon1
